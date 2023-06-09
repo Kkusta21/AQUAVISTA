@@ -29,7 +29,7 @@ Take a virtual tour through our gallery to explore the swimming pools we have de
 Ready to take the plunge and start your swimming pool journey? Our team is eager to assist you. Contact us today to schedule a consultation or request more information. We are here to answer any questions you may have and guide you through the process of creating your dream swimming pool.
 
 - **Phone:** +35506992230160
-- **Email: epoka@gmail.com
+- **Email:** epoka@gmail.com
 - **Address:** Tirane
 
 We look forward
