@@ -32,4 +32,4 @@ Ready to take the plunge and start your swimming pool journey? Our team is eager
 - **Email:** epoka@gmail.com
 - **Address:** Tirane
 
-We look forward
+We are looking forward for you 
